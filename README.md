@@ -18,7 +18,7 @@ EXPLICACIÓN Y RESOLUCIÓN DE EJERCICIOS O PROBLEMAS
 [![Captura-de-pantalla-2021-11-09-000223.png](https://i.postimg.cc/VvhXNS0F/Captura-de-pantalla-2021-11-09-000223.png)](https://postimg.cc/8fh7KzHF)
 
 
-
+CARE VERGAAAAAAAAS
 
 VIDEO
 
